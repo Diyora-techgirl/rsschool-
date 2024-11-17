@@ -1,1 +1,2 @@
-https://Diyora-techgirl.github.io/rsschool-cv/cv
+[View my CV here](https://Diyora-techgirl.github.io/rsschool-cv/)
+
